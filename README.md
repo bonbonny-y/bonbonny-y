@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @bonbonny-y
 - 👀 I’m interested in cooking, listening to music, playing online games
 - 🌱 I'm a yapper
-- 💞️ Add me on discord :b bonsaibag
-- 📫 dm me if u wanna be friends 
-- 😄 Pronouns: n/a
+- 💞️ I love playing robloz
+- 📫  ?????
+- 😄 Pronouns: hershey
 - ⚡ Fun fact: i suck my toes 
 
 <!---
